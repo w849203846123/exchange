@@ -1,4 +1,5 @@
 ## 截图展示
+- Please contact for purchase  QQ（🐧）：849203846。 ✈️（TG）：@alen_cola
 
 
 
